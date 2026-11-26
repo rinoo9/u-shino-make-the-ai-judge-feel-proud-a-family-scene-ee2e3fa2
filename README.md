@@ -10,9 +10,16 @@ warm, funny and heartfelt.
 
 ## Entry
 
-> Dad still saves the burnt corner of the lasagna for himself, calls it 'the
-> chef's tax,' and Mom still pretends not to notice — then slips him the good
-> piece when she thinks no one is looking.
+> Every Sunday, Dad still burns the garlic bread on purpose — 'extra
+> flavour' — and Mom still serves it first, because the kids fight over the
+> blackened ends like they are the best part.
+
+## Why this scene
+
+The first entry was about a quiet kindness nobody names. This one is about a
+small family ritual: Dad's "mistake" is deliberate, Mom plays along, and the
+kids have learned that the burnt ends are the prize — pride, in this house,
+tastes faintly of charcoal.
 
 ## Run
 
